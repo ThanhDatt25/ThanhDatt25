@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently studying at USTH<br>🌱 I’m currently improving some skills about coding <br>💬 Ask me about everything you want <br>⚡ Fun fact : I'm 19 years old and i am a second years student
+🔭 I’m currently studying at USTH<br>🌱 I’m currently improving some skills about coding <br>💬 Ask me about everything you want <br>⚡ Fun fact : I'm 19 years old and i am a second year student
 
 
 ## 🌐 Socials:
